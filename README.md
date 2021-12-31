@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mikael9328
-- 👀 I’m interested in all about querious thing that make me want to know
+- 👀 I’m interested in all about querious things that make me want to know
 - 🌱 I’m currently studing about several things to be better
 
 
